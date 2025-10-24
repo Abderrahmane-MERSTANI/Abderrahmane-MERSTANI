@@ -64,7 +64,7 @@ CONTACT INFORMATION
 
 Email: abderrahmanemerstani2468@gmail.com
 
-Phone: +212666171730
+Phone: +212762494390
 
 LinkedIn: https://www.google.com/search?q=linkedin.com/in/abderrahmane-merstani-2a7aa01bb
 
